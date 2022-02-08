@@ -6,8 +6,8 @@ It's an prettey advanced phishing page servers.
 
 Free private server with permanent URL😉!
 
-Click here to continue URL:https://skyboy-cloud.web.app
-Digitalized!
+Click here to continue: [skyboycloud](https://skyboy-cloud.web.app/)
+
 
 ![2022-01-31](https://user-images.githubusercontent.com/98765158/151840978-deacc0fb-25bb-4ea3-9809-8ebecc504b82.png )
 

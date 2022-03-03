@@ -4,8 +4,6 @@
 
 It's an prettey advanced phishing page servers.
 
-Free private server with permanent URL😉!
-
 Click here to continue: [skyboycloud](https://skyboy-cloud.web.app/)
 
 
